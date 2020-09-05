@@ -1,2 +1,2 @@
-# nsbmwee
-New Super Mario Bros. Wii Extreme Edition
+# New Super Mario Bros. Wii Master Mode
+New Super Mario Bros. Wii Master Mode
